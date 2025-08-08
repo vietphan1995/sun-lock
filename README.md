@@ -10,7 +10,7 @@ SUN LOCK is a pot that has lid can be opened and closed in screw way, this makes
 
 SUN LOCK has dock goes with burn dock, can be opened and closed in screw way also.
 
-SUN LOCK can save energy in cooking process, keep temperature, safety, reduce climate change by replacing plastic by metal material built in. In advance, SUN LOCK ecosystem improve food delivery and keeping services, units communication, …
+SUN LOCK can save energy in cooking process, keep temperature, safety, reduce climate change by replacing plastic by metal material built in. In advance, SUN LOCK ecosystem improve food delivery and keeping services, especially reducing plastic bag, units communication, …
 
 ![image.png](image.png)
 
