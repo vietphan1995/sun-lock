@@ -19,4 +19,4 @@ SUN LOCK can save energy in cooking process, keep temperature, safety, reduce cl
 [back to git projects …](https://github.com/vietphan1995/projects)
 
 ### Notes
-https://six-zinc-ad4.notion.site/sun-lock-1b45e832d6ee80a09d82f7a3e8daee73
+https://phantrungviet.notion.site/sun-lock-1b45e832d6ee80a09d82f7a3e8daee73
